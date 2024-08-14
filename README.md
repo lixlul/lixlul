@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lixlul
 - 👀 I’m interested in trabalhos
-- 🌱 I’m currently learning projetos
+- 🌱 I’m currently learning TI
 - 💞️ I’m looking to collaborate on empressas
 - 📫 How to reach me my email: demoraesraimundoa@gmail.com
 - 😄 Pronouns: ela/dela
